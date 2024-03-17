@@ -1,1 +1,1 @@
-allah's number one skid
+i use debian btw (i am homophobic)
